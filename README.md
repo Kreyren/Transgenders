@@ -1,4 +1,4 @@
-**DISCLAIMER:** The original author of this paper (Jacob Hrbek) is not a transgender and this paper has been created on his own motivation after an experience with transgenders and the way they may be treated by the general public. The original creator is also "random guy on the internet" and the informations provided should be peer-reviewd.
+**DISCLAIMER:** The original author of this paper (Jacob Hrbek) is not a transgender and this paper has been created on his own motivation after an experience with transgenders and the way they may be treated by the general public. The original creator is also "random guy on the internet" and the informations provided should be peer-reviewed.
 
 
 <h1 align="center">
