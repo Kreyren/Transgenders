@@ -1,4 +1,4 @@
-**DISCLAIMER:** The original author of this paper (Jacob Hrbek) is not a transgender and this paper has been created on his own motivation after an experience with transgenders and the way they may be treated by a general public. The original creator is also "random guy on the internet" and the informations provided should be peer-reviewd.
+**DISCLAIMER:** The original author of this paper (Jacob Hrbek) is not a transgender and this paper has been created on his own motivation after an experience with transgenders and the way they may be treated by the general public. The original creator is also "random guy on the internet" and the informations provided should be peer-reviewd.
 
 
 <h1 align="center">
@@ -54,7 +54,7 @@ Q: What if you want to have sex?<br>
 A: Transgender female could have a self-lubricating vagina capable of fitting a penis and simmilar situation for a transgender male.
 
 Q: Didn't they used your dick to build pussy?<br>
-A: Mostly that depends on discussion made with a surgeon to know what would be a best approach for the desired goal which may include transforming the penis to look like vagina, but some humanoids diagnosed with gender Gender dysphoria
+A: Mostly that depends on discussion made with a surgeon to know what would be a best approach for the desired goal which may include transforming the penis to look like vagina, but some humanoids diagnosed with Gender dysphoria prefer to be genderless.
 
 Q: Your procedure is not reversible<br>
 A: Theoretically reversible in some cases depending on the prior surgery, but generally unwanted(?).
